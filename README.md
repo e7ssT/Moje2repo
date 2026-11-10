@@ -1,0 +1,1 @@
+cos o czym co nw co ale co IGOR PIECZONKA
